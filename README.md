@@ -1,0 +1,1 @@
+# Manage-futuristic-projects-speculative-innovation-initiatives
